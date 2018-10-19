@@ -1,1 +1,1 @@
-See https://github.com/maskot1977/profile/wiki/Masaaki-Kotera
+See https://github.com/maskot1977/profile/wiki
